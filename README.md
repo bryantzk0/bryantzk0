@@ -1,16 +1,16 @@
-## Hi there 👋
 
-<!--
-**bryantzk0/bryantzk0** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## Olá 👋👽
 
-Here are some ideas to get you started:
+**bryantzk0/bryantzk0** é um repositório ✨ _especial_ ✨ porque seu `README.md` (este arquivo) aparece em seu perfil do GitHub.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Aqui estão algumas ideias para você começar:
+
+- 🔭 Atualmente estou trabalhando em nada
+- 🌱 Atualmente estou aprendendo fisica e mecanica
+- 👯 Procuro colaborar em alguma coisa
+- 🤔 Estou procurando ajuda com programação
+- 💬 Pergunte-me sobre carros e jogos 
+- 📫 Como entrar em contato comigo: bryan.tomczyk@escola.pr.gov.br
+- 😄 Pronomes: ele/dele
+- ⚡️ curiosidades: jogo de pekka e mega evo com goblin einstein
+  
