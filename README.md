@@ -14,4 +14,9 @@ Aqui estão algumas ideias para você começar:
 - 😄 Pronomes: ele/dele
 - ⚡️ curiosidades: jogo de pekka e mega evo com goblin einstein
 - 👎 sou main Edgar 👎
-- 
+[instagram](
+![](https://media.tenor.com/-zglAxBn4O0AAAAi/100.gif)
+
+![](https://media1.tenor.com/m/BlpUSSwxxMgAAAAd/edgar-meme.gif)
+
+- ![](https://media1.tenor.com/m/gH81r7DCLU4AAAAd/brawl-stars-brawl-stars-emoji.gif)
