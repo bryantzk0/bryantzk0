@@ -13,4 +13,5 @@ Aqui estão algumas ideias para você começar:
 - 📫 Como entrar em contato comigo: bryan.tomczyk@escola.pr.gov.br
 - 😄 Pronomes: ele/dele
 - ⚡️ curiosidades: jogo de pekka e mega evo com goblin einstein
-  
+- 👎 sou main Edgar 👎
+- 
